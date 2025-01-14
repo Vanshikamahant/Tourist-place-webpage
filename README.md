@@ -1,0 +1,1 @@
+This static webpage showcases the most iconic places to visit in Haryana, offering information about historical, cultural, and natural attractions. It is designed to provide an engaging and informative experience for users interested in exploring Haryana.
